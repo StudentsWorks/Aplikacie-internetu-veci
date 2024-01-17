@@ -1,0 +1,1 @@
+"# Aplikacie-internetu-veci-" 
